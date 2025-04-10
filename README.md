@@ -2,7 +2,7 @@
 ## Note - I didn't make the exploits.
 
 ## 3kh0 list: 
-### Github: https://github.com/3kh0/ext-remover <br>
+### Github: https://google.com <br>
 
 ## Mercury Workshop: 
 ### Website: https://mercurywork.shop/ <br> 
